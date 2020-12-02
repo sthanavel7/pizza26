@@ -1,0 +1,1 @@
+Pizza is a savory dish of Italian origin consisting of a usually round, flattened base of leavened wheat-based dough topped with tomatoes, cheese, and often various other ingredients (such as corn, mushrooms, onions, olives , meat, etc)which is then baked and eaten  
